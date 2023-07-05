@@ -1,7 +1,7 @@
 
 - 👋 Hi, I’m @Hyroth
 - 👀 I’m interested in coding
-- 🌱 I’m currently learning IT
+- 🌱 I’m currently learning SMA
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me no tlp 081808107002
 
